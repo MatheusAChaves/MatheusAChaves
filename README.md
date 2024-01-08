@@ -4,7 +4,7 @@ Olá, eu sou o Matheus Augusto, aluno do curso Staart
 
 ![one piece](https://github.com/MatheusAChaves/MatheusAChaves/assets/155933481/0494ce42-bc9d-4fe1-9e97-bf5bfb5336c6)
 
-Moro em Sana Luzia-MG🌐
+Moro em Santa Luzia-MG🌐
 ## Meus Hobbies
 
 - Jogar videogame
