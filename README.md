@@ -23,5 +23,5 @@ Moro em Sana Luzia-MG🌐
 
 - Twitter @Matheus_Chaves7
 - GitHub @MatheusAChaves
-- Instagram @matheus_chaves07
+- Linkedin Matheus Augusto
 - Email matheusagc@gmail.com
