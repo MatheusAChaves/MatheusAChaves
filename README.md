@@ -7,6 +7,7 @@ Olá, eu sou o Matheus Augusto
 - Jogar videogame
 - Assistir animes
 - Aprender coisas novas
+- Acompanhar notícias sobre o mundo
 
 ## atualmente estudando
 
